@@ -1,1 +1,1 @@
-Óla, estudo alura🥱 👋
+
